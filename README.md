@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BitcoinBill24
 - 👀 I’m interested in trading nft and making tons of money.
-- 🌱 I’m currently learning how to smart contracts.
+- 🌱 I’m currently learning how to create smart contracts.
 - 💞️ I’m looking to collaborate on nfts.
 - 📫 How to reach me lafamila65@gmail.com
 
